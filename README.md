@@ -1,0 +1,2 @@
+# Impulso-Verde-Premio-BIBO-2023-Destaca-Innovaci-n-en-Colombia
+El Premio BIBO 2023 ilumina el camino hacia la sostenibilidad en Colombia, premiando iniciativas que van desde la bioeconomía hasta la conservación de la biodiversidad. Proyectos que abarcan desde el cultivo de mangle hasta la coexistencia con el Cóndor de los Andes, muestran el poder de la comunidad y la innovación para proteger nuestro planeta.
